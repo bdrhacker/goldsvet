@@ -118,7 +118,7 @@ Added 100 games, bringing total to 1200 games now.</p>
 <h2>Have a Problem or Question?</h2>
 <p><b>If you have difficulty for setup/installation consider installation services from my telegram.</b></p>
 
-<p dir="auto"><a href="https://t.me/TWFtYWggYWt1IHRha3V0IPCfpK" rel="nofollow">Telegram</a></p>
-<p dir="auto"><a href="https://t.me/goldsvetcasino1" rel="nofollow">Telegram Group</a></p>
+<p dir="auto"><a href="" rel="nofollow">Telegram</a></p>
+<p dir="auto"><a href="" rel="nofollow">Telegram Group</a></p>
 <p dir="auto">&nbsp;</p>
 
