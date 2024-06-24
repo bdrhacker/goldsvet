@@ -118,7 +118,7 @@ Added 100 games, bringing total to 1200 games now.</p>
 <h2>Have a Problem or Question?</h2>
 <p><b>If you have difficulty for setup/installation consider installation services from my telegram.</b></p>
 
-<p dir="auto"><a href="" rel="nofollow">Telegram</a></p>
-<p dir="auto"><a href="" rel="nofollow">Telegram Group</a></p>
+<p dir="auto"><a href="https://@onlin99999.t.me" rel="nofollow">Telegram</a></p>
+<p dir="auto"><a href="https://@onlin99999.t.me" rel="nofollow">Telegram Group</a></p>
 <p dir="auto">&nbsp;</p>
 
